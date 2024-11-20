@@ -15,19 +15,19 @@ Front End – AI Children’s Book Maker 2500
 [Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
 
 Upgrade 01: PRO Edition with Chapter Book Upgrade and Illustration Tools ($97)
-[Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
+[Grab The Early Bird Offer](https://jvz8.com/c/2334469/413394/)
 
 Upgrade 02: DFY Authority Site ($197)
-[Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
+[Grab The Early Bird Offer](https://jvz2.com/c/2334469/413395/)
 
 Upgrade 03: GPTDash Instant Content Creator – Commercial License ($17.95)
-[Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
+[Grab The Early Bird Offer](https://jvz7.com/c/2334469/395931/)
 
 Upgrade 04: Inner Profit Circle Monthly VIP Membership ($37)
-[Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
+[Grab The Early Bird Offer](https://jvz8.com/c/2334469/368967/)
 
 Upgrade 05: Great PLR Home Remedy Profit Multiplier Package ($27)
-[Grab The Early Bird Offer](https://jvz5.com/c/2334469/413392/)
+[Grab The Early Bird Offer](https://jvz3.com/c/2334469/307077/)
 
 **What Is AI Children’s Book Maker 2500?**
 
